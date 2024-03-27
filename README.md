@@ -1,4 +1,4 @@
-### "We do it to get money, money nig** fuck the fame"
+### "We do it to get money, money nig** fuck the fame" 🚶🗣️
 
 <!--
 **catlover217/catlover217** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
